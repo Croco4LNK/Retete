@@ -12,4 +12,8 @@
 
 ### Preparare:
 - se amesteca tot
-- se pastreaza cateva bucatele de ciocolata pentru a fi presarate 
+- se pastreaza cateva bucatele de ciocolata pentru a fi presarate pe deasupra
+- se pune compozitia intr-o tava tapetata cu hartie de copt
+
+### Gatire:
+- sepune in cuptorulpreincalzit la 180 grade ca 30 - 35 minute
