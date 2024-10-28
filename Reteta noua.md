@@ -1,1 +1,0 @@
-2 cartofi copti
