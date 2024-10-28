@@ -1,7 +1,5 @@
 --- 
 
-
-
 Timp de pregatire
 
 ### Ingrediente:
